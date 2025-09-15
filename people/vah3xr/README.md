@@ -1,4 +1,4 @@
-# Katie Manley
+### Katie Manley
 
 - Hometown: Charlottesville VA
 - Hobbies: running, cooking, soccer, art
